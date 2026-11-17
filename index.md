@@ -1,0 +1,1 @@
+Pro Gamer Pin Scheduler is a personal tool used only by the owner of ProGamerTees to schedule pins on their own Pinterest business account. It does not collect, store, sell, or share personal data from any other users. Pinterest data accessed (own boards and pins) is used only to create and schedule pins. Contact: oximas2004@gmail.com
